@@ -1,4 +1,5 @@
-📸 Capturing moments, one snapshot at a time.
+📸 Capturing moments, 
+one snapshot at a time.
 🦄 Unapologetically Me
 🌅 Sunset Lover
 🌸 Floral Enthusiast
